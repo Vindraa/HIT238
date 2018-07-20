@@ -1,2 +1,2 @@
 # HIT238
-My name is Rhys Wheeler, i am in my second year of university and currently work as a delivery driver. In my spare time i play games with various firneds around the world depending on what time it is.
+My name is Rhys Wheeler, i am in my second year of university and currently work as a delivery driver. In my spare time I play games with various firneds around the world depending on what time it is.
